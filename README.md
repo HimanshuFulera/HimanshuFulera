@@ -77,8 +77,8 @@ To become a **top-tier Full Stack Engineer** capable of building scalable, intel
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn: *(add your link)*
-* 📧 Email: *(add your email)*
+* 💼 LinkedIn: https://www.linkedin.com/in/himanshu-fulera-78a156299
+* 📧 Email: hkhimanshu3214@gmail.com
 
 ---
 
